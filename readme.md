@@ -1,3 +1,3 @@
 Hey guys i am an idiot
 
-yes you are
+yes you're a dick
